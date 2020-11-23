@@ -1,2 +1,2 @@
 # dinnercraft
-A cool resource pack for cool people
+Now with 50% less outdated memes.
